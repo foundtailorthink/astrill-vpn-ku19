@@ -1,10 +1,10 @@
-VIP Astrill VPN Utilitário | servidores de alta velocidade + túnel dividido é o melhor Astrill VPN utilitário com servidores de alta velocidade e túnel dividido. Seguro e
+
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://foundtailorthink.github.io/astrill-vpn-ku19/ ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
  |---------------------|----------------------:|
 
 
